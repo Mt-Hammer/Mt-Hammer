@@ -1,4 +1,6 @@
 ## Welcome to Mthammer Tracks
+![mthammer](mt-hammer.jpeg)
+
 
 You can use the [editor on GitHub](https://github.com/Mt-Hammer/Mt-Hammer/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
