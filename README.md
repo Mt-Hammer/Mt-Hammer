@@ -1,6 +1,55 @@
 ## Welcome to Mthammer Tracks
 ![mthammer](mt-hammer.jpeg)
 
+## Good old songs
+
+# Driving on the bus with Gradma
+
+I took a motherfucking bus ride,
+Tooo-tooo-tooo-tooo,
+
+30 munites into the bus ride,
+Said - nigga we're going the wrong way,
+There's no forest here today, 
+Only big-ass sittaay.
+
+She said holy-tittay,
+We're gonna turn that ass around,
+And I was like granny don't worry,
+I'll turn that frown right upside down. 
+
+Tooo-too-too-tooo
+Tooo-neeew-teeww
+
+
+# My baby girl
+I said see you later
+Drove all the way to your aunt's house,
+Without... you better not film this nigga, it's direspectful, you're making me shy and taking me out of my element.
+
+Oooooh-oooh
+I got this fine young mama sita sitting next to me,
+Oh baby girl she's fine as she's carresing me,
+I met her, on the tinder, wait no just kidding,
+It was hinge haha,
+She likes my, she like my motto,
+I said I like yours too,
+She say - what that mean, 
+I said what does yours mean too?
+KISS - keep it simple stupid,
+I said - ok sounds good to me, 
+SO imma keep it simple as you say, 
+Next thing you know. 
+I'm at her friend's house that she's babysitting for,
+WHo's she is babysitting though, it's a cat
+She's a little baby girl and she like to purr and hoe,
+Rated R content.
+
+
+
+
+
+
 
 You can use the [editor on GitHub](https://github.com/Mt-Hammer/Mt-Hammer/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
