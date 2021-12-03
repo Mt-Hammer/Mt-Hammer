@@ -1,4 +1,4 @@
-# <p align="center"> <strong>Welcome to Mthammer Tracks :metal: </strong> </p>
+# Welcome to Mthammer Tracks :metal:
  
 <p align="center">
    <img src="mt-hammer.jpeg" width="400" height="500">
@@ -8,11 +8,11 @@
 
 ## Driving on the bus with Gradma
 
-I took a motherfucking bus ride<br>
+I took a motherf$*%king bus ride<br>
 Tooo-tooo-tooo-tooo<br>
 
 30 munites into the bus ride<br>
-Said - nigga we're going the wrong way<br>
+Said - ni$$A we're going the wrong way<br>
 There's no forest here today<br>
 Only big-ass sittaay<br>
 
@@ -41,10 +41,10 @@ She say - what that mean<br>
 I said what does yours mean too?<br>
 KISS - keep it simple stupid<br>
 I said - ok sounds good to me<br>
-SO imma keep it simple as you say<br>
+So imma keep it simple as you say<br>
 Next thing you know<br>
 I'm at her friend's house that she's babysitting for<br>
-WHo's she is babysitting though, it's a cat<br>
+Who's she is babysitting though, it's a cat<br>
 She's a little baby girl and she like to purr and hoe<br>
 Rated R content....<br>
 
