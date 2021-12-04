@@ -1,4 +1,4 @@
-# Welcome to Mthammer Tracks :metal:
+# Welcome to Mthammer Tracks
  
 <p align="center">
    <img src="mt-hammer.jpeg" width="400" height="500">
@@ -48,4 +48,4 @@ Who's she is babysitting though, it's a cat<br>
 She's a little baby girl and she like to purr and hoe<br>
 Rated R content....<br>
 
-### Brought to you by Uli's Santa :santa:
+### Brought to you by Uli's Santa
